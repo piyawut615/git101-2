@@ -1,2 +1,5 @@
 # git101-2
-read me na
+lololololo
+sum,f 
+pdf,m 
+pdf 
